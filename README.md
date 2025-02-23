@@ -10,7 +10,7 @@
 
 🌱 Always learning new technologies and improving problem-solving skills.
 
-📫 Reach me at karanthakae2834@gmail.com .
+📫 Reach me at karanthakae2834@gmail.com |  LinkedIn : https://www.linkedin.com/in/karan-thakar-7ba477268/
 
 🌐 Check out my Portfolio : https://karan-thakar.vercel.app/ .
 
